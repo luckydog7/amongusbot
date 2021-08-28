@@ -1,0 +1,2 @@
+# amongusbot
+sus
